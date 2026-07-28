@@ -1,0 +1,1 @@
+Beginner page about recipes
